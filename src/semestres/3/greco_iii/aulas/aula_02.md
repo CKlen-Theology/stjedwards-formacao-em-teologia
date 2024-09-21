@@ -146,7 +146,7 @@ As **preposições** são essenciais para uma boa tradução e exegese.
 * Preposição: para cima, acima, sobre, cada.
 * Prefixo: para cima, outra vez.
 
-**Quadro de Preposições (referente ao slide 37 do arquivo "[Slides de Grego Koinê 3.pdf](files/slides.pdf)"):**
+**Quadro de Preposições (referente ao slide 37 do arquivo "[Slides de Grego Koinê 3.pdf](../arquivos/slides.pdf)"):**
 
 | Grego      | Tradução           | Caso                                    |
 | ---------- | -------------------- | --------------------------------------- |
