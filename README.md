@@ -4,11 +4,12 @@
 
 ## Curso de Formação em Teologia do Seminário Teológico Jonathan Edwards
 
-O curso de Formação em Teologia (Livre, EAD) do STJE possui um caráter interdenominacional, embora esteja ligado diretamente à uma Igreja pertencente à União das Igrejas Evangélicas Congregacionais do Brasil, a Primeira Igreja Evangélica Congregacional de Caruaru-PE. O curso é destinado a cristãos, de forma geral, que desejem estudar teologia cristã ortodoxa a partir de uma perspectiva reformada.
+Este repositório reúne meus materiais de estudo do curso de Teologia do *Seminário Teológico Jonathan Edwards (STJE)*. O curso é oferecido *à distância* e tem um caráter **interdenominacional**, embora esteja ligado à Primeira Igreja Evangélica Congregacional de Caruaru-PE. É voltado para cristãos que desejam explorar a **teologia cristã ortodoxa** sob uma perspectiva **reformada**.
 
-Abaixo segue a relação das disciplinas que compoem o curso de formação, organizadas em 8 períodos letivos (semestres).
+O curso é dividido em **oito semestres**, cada um com *oito disciplinas* variadas que buscam cobrir um considerável espectro dos **fundamentos teológicos ortodoxos através de um prisma reformado**. 
 
-Este conteúdo é mantido e organizado pelo aluno [Cristian Klen](https://br.linkedin.com/in/cristianklen), e contém seu material de estudo.
+Este espaço é mantido por mim, [Cristian Klen](https://br.linkedin.com/in/cristianklen), e serve como um arquivo pessoal dos meus estudos e progressos no curso.
+
 
 ### 1º SEMESTRE
 
