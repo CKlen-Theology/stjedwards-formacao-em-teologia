@@ -1,31 +1,41 @@
-## CRISTOLOGIA: transcrição editada da aula 03
+## CRISTOLOGIA: transcrição editada da aula 03: a Necessidade da Plena Humanidade de Cristo
 
-Olá, sejam bem-vindos à nossa terceira aula do curso de Teologia Sistemática, Disciplina Cristologia. Nesta aula, daremos prosseguimento à nossa reflexão sobre a humanidade de Cristo. Na aula anterior, começamos a considerar a visão bíblica da humanidade do nosso Senhor e a necessidade disso. 
+## Introdução
+Olá, sejam bem-vindos à nossa terceira aula do curso de Teologia Sistemática, Disciplina Cristologia. Continuaremos nossa reflexão sobre a humanidade de Cristo. Na aula anterior, começamos a pensar sobre a visão bíblica da humanidade do nosso Senhor. É importante ressaltar que não se trata de mera especulação. Tanto a humanidade quanto a divindade de Cristo são necessárias para que possamos ter uma obra eficaz, para que todas as características da nossa cristologia, especialmente a cristologia reformada, apresentem a obra de Cristo como algo perfeito, competente e no qual possamos basear a nossa fé.
 
-Não se trata apenas de especulação teológica, mas é fundamental para a nossa cristologia reformada entender que Cristo foi 100% homem e 100% Deus. Tanto a humanidade quanto a divindade de Cristo são necessárias para que sua obra seja eficaz e perfeita, garantindo a salvação de seu povo. Cristo, como nosso segundo representante, assume a nossa humanidade e, ao contrário de Adão, cumpre com sucesso a sua missão. 
+Não foi uma criatura que pagou o preço em nosso lugar, mas o próprio Deus. É importante vermos a obra de Cristo sendo realizada por alguém que é Deus, pois isso nos garante a perfeição e a completude daquilo que foi realizado. No entanto, também é necessário que Ele tenha sido humano, para que pudesse se colocar como um representante perfeito. Assim, a obra de Cristo necessariamente passa por esses aspectos. Aquele que morreu em nosso lugar tinha que ser humano, representando a raça humana.
 
-Na aula de hoje, continuaremos a explorar as razões pelas quais a plena humanidade de Cristo é essencial para a nossa fé. Então, a partir de agora, aprofundaremos nosso entendimento sobre a necessidade da humanidade de Jesus. 
+Na Antropologia Bíblica, vimos que Adão, como nosso primeiro representante, por sua desobediência, trouxe sobre toda a raça humana as consequências de seu pecado. Cristo, como nosso segundo representante, o representante da aliança da graça, também tinha que ser humano para nos representar de fato. Ele assumiu essa humanidade; o Verbo se encarnou eternamente. Não haverá nenhum momento, pela eternidade, em que Cristo deixará de ser Cristo homem. Ele se tornou o nosso representante perfeito.
 
-## Por Que Era Necessário Que Jesus Fosse Plenamente Humano?
+## Por que era necessário que Jesus fosse plenamente humano?
+Vamos agora apresentar as características dessa necessidade. Por que isso é tão importante? Por que não podemos tratar isso como uma questão de menor importância ou de opção? A resposta é que não nos é dado esse direito de decidir se Cristo foi plenamente humano ou não. Na aula anterior, citamos o posicionamento do apóstolo João, que classifica como anticristão aqueles que questionam a plena humanidade de Cristo. João chega a dizer que se os espíritos negam a encarnação do Messias, eles devem ser rejeitados como espíritos do anticristo.
 
-Primeira questão: possibilitar uma obediência representativa. Para que pudéssemos ser representados por Cristo, era necessário que ele fosse humano. Como homem, ele pôde cumprir perfeitamente os mandamentos de Deus e oferecer uma obediência representativa em nosso lugar. Ele, como nosso representante legítimo, cumpriu com as exigências da aliança da graça. 
+Então, não é uma questão de simples escolha. É necessário que Cristo seja plenamente humano, e agora vamos entender o porquê disso. Por que é uma questão importante definir e entender as implicações dessa humanidade? Por que essa doutrina é tão importante para a nossa cristologia? Porque, quando falamos da humanidade de Jesus, estamos falando de toda uma série de implicações do que representou o sacrifício de Cristo em nosso lugar. Ali não foi alguém com aparência humana, mas alguém que era plenamente humano, sem o pecado, como Adão antes da queda. Cristo, o Verbo encarnado, tem essa característica humana.
 
-Em segundo lugar, era necessário que Jesus fosse plenamente humano para ser um sacrifício substitutivo. Os sacrifícios do Antigo Testamento eram reais, envolvendo animais reais. Cristo, como um ser humano real, passou por sofrimentos reais e conquistou algo real para aqueles que ele representava. Ele não nos deixou apenas com possibilidades, mas, de fato, realizou uma obra eficaz. 
+### 1. Possibilitar uma obediência representativa
+Primeiro, a plena humanidade de Cristo possibilita uma obediência representativa. Vemos isso em vários textos bíblicos. Era necessário que alguém, como o representante da nossa segunda aliança, cumprisse com as exigências desta aliança. Nosso primeiro representante, Adão, foi incompetente nessa missão. Ele nos representou, mas falhou em sua representação, e sofremos as consequências de sua desobediência. Cristo, como homem, se coloca agora de maneira competente e correta como nosso representante.
 
-## Ser o Único Mediador Entre Deus e os Homens
+Como homem, Cristo pode apresentar essa obediência representativa. Ele é, como homem, esse sacrifício correto, representando de maneira legítima aqueles que estão sendo representados. É um homem morrendo por outros homens. Cristo é um representante legítimo. Por isso, ele possibilita esta obediência representativa. Ele pode ser o nosso representante, sacrifício e sumo sacerdote, intermediando por nós, pois experimentou de maneira legítima as fragilidades humanas.
 
-Terceiro, Jesus precisava ser plenamente humano para ser o único mediador entre Deus e os homens. Como homem, ele nos representa de maneira plena, e como Deus, ele oferece uma intermediação perfeita. Nós temos um sumo sacerdote que está à direita do Pai, em posição de igualdade, intercedendo por nós. 
+### 2. Ser um sacrifício substitutivo
+Em segundo lugar, a plena humanidade de Cristo era necessária para que Ele fosse um sacrifício substitutivo. Se Cristo não fosse de fato humano, isso não faria sentido. Todos os sacrifícios do Antigo Testamento eram reais. Não se sacrificava por ideias ou aparências. O texto bíblico diz que sem derramamento de sangue não há remissão de pecados. Os animais sacrificados representavam o pecador e eram reais. A ideia de substituição era clara: o inocente morrendo no lugar do culpado.
 
-Um texto interessante que ilustra a divindade de Cristo é Apocalipse 5:1-14, onde alguém se levanta, toma o livro da mão direita de Deus e recebe adoração. Essa figura é igual a Deus, podendo resolver uma problemática específica. Cristo, como homem, intercede por nós, e como Deus, está em pé de igualdade com o Pai, garantindo uma intermediação perfeita. 
+Quando entendemos a humanidade de Cristo, vemos que seu sacrifício foi real. Ele foi um ser humano passando por sofrimentos reais e conquistando algo real em favor daqueles que representou. Cristo não conquistou possibilidades, mas algo concreto e independente de nossas ações. Então, foi necessário que Ele fosse plenamente humano para ser esse sacrifício substitutivo.
 
-## Cumprir o Propósito Original do Homem
+### 3. Ser o único mediador entre Deus e os homens
+Em terceiro lugar, a plena humanidade de Cristo era necessária para que Ele fosse o único mediador entre Deus e os homens. Para haver um intermediário correto e competente, que nos represente diante de Deus, é necessário que esse mediador seja humano. Jesus Cristo é esse mediador perfeito porque, como homem, nos representa plenamente, e como Deus, oferece uma intermediação perfeita.
 
-Em quarto lugar, Cristo, como homem, cumpre o propósito original do homem de dominar a criação. Adão falhou nessa missão, mas Cristo, como homem, cumpre com sucesso. Ele é exaltado como homem e recebe adoração, garantindo o propósito original de Deus para a criação. 
+Mesmo que Cristo, como homem, não tivesse pecado, ainda assim Ele não poderia ser plenamente nosso mediador se não fosse também Deus, pois não poderia falar a Deus de forma plena e estar lado a lado com o Pai. O texto de Hebreus nos mostra isso claramente. Da mesma forma, Apocalipse 5:1-14 apresenta uma problemática que apenas alguém igual a Deus poderia resolver. Cristo, como homem, se apresenta diante do Pai e fala em favor de outros homens, da sua igreja.
 
-## Ser Nosso Exemplo e Padrão de Vida
+### 4. Cumprir o propósito original do homem de dominar a criação
+Em quarto lugar, a plena humanidade de Cristo cumpre o propósito original de Adão de dominar a criação. Cristo, como homem, cumpre esse objetivo. Há vários textos que falam da exaltação de Cristo, não somente como Deus, mas também como homem, recebendo adoração. Cristo, o homem, é o garantidor desse propósito original de Deus para a criação.
 
-Por último, Jesus, como homem, se torna nosso exemplo e padrão de vida. Se Cristo não fosse humano, não teríamos um exemplo humano a seguir. Como cristãos, nosso objetivo é ser cada vez mais parecidos com Cristo, imitando seu comportamento e respeitando seus ensinamentos. 
+### 5. Ser nosso exemplo e padrão de vida
+Por fim, a plena humanidade de Cristo O torna nosso exemplo e padrão de vida. Se Cristo não fosse plenamente humano, não teríamos um exemplo a seguir. Não podemos imitar integralmente a Deus, mas Cristo, como homem, se coloca como nosso padrão humano. Adão falhou nessa responsabilidade, desobedecendo a Deus e quebrando seus mandamentos. Cristo, o homem, nunca quebrou nenhum dos mandamentos e viveu para fazer a vontade de Deus, glorificando-O em sua vida.
 
-Então, vejam como é importante entender corretamente a necessidade da humanidade de Cristo. Isso não é uma questão opcional, mas fundamental para a nossa fé. Jesus Cristo, o Deus-homem, assumiu a forma humana para todo o sempre, garantindo a nossa salvação eterna. 
+Cristo se coloca como nosso exemplo, e ser cristão é ser imitador de Cristo. O nosso objetivo é sermos cada vez mais transformados pelo Espírito Santo em homens e mulheres parecidos com Cristo. Imitamos Seu comportamento e Seus discursos, e tudo isso foi dado pelo Cristo humano durante Seu ministério terreno. Então, por ser humano, Ele se apresenta e é apresentado como nosso exemplo.
 
-Fiquemos por aqui nesta terceira aula. Um abraço e até a próxima!
+## Conclusão
+Vimos, então, a importância da doutrina da humanidade de Cristo e por que era necessário que Ele fosse plenamente humano. Isso O habilitou a ser nosso mediador, cumprir o propósito original de domínio sobre a criação e ser nosso exemplo e padrão de vida. Jesus Cristo, o Deus-homem, será um homem para sempre. Essa é uma das belezas da doutrina da encarnação. Jesus assumiu a forma humana eternamente, garantindo nossa salvação eterna. Não haverá momento em que nosso intermediário não esteja à frente de seu povo.
+
+Até a próxima aula!
