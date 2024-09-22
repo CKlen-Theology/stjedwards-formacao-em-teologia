@@ -1,37 +1,39 @@
 ## CRISTOLOGIA: transcrição editada da aula 08
 
-Olá, sejam bem-vindos à nossa oitava aula do nosso curso de Teologia Sistemática, Disciplina Cristologia. Nesta aula, continuaremos a explorar os aspectos da obra de Cristo e as consequências da expiação. Vamos lá!
+Olá, sejam bem-vindos à nossa oitava aula do curso de Teologia Sistemática, disciplina Cristologia. Na aula anterior, discutimos aspectos relacionados à obra de Cristo, especificamente sobre a expiação, explorando seus aspectos teológicos.
+
+Refletimos sobre a causa da expiação, enraizada no amor e na justiça de Deus. Quando Deus decidiu salvar um incontável número de homens e mulheres, a expiação se tornou necessária para que esse povo pudesse ter comunhão com Ele. Também abordamos a natureza da expiação, onde Jesus, em obediência ao Pai, se colocou em nosso lugar como nosso representante humano perfeito. Como um ser humano divino, Ele cumpriu integralmente todas as exigências da lei, garantindo nossa salvação pela graça, e não por méritos humanos.
+
+A fé e a decisão de seguir a Cristo também são consequências da obra de Cristo sobre nós. O Espírito Santo certamente realizará essa obra na vida daqueles pelos quais Cristo morreu. Repito, o Espírito Santo agirá com certeza na vida daqueles pelos quais Cristo morreu.
+
+Retornando ao nosso conteúdo, hoje refletiremos sobre as consequências da expiação. Na aula anterior, introduzimos brevemente esse tema, e agora desenvolveremos nossa reflexão de forma progressiva.
 
 ## Consequências da Expiação
 
-### Obediência de Cristo por Nós (Obediência Ativa)
+### Obediência de Cristo por Nós
 
-Cristo tinha que viver uma vida de perfeita obediência a Deus, obedecendo à lei ao longo de toda a sua vida, para que os méritos da sua perfeita obediência fossem contados em nosso favor. Filipenses 3:9, 1 Coríntios 1:30, Romanos 5:19, e Mateus 3:15.
+Podemos classificar isso como obediência ativa. Cristo obedeceu ativamente ao Pai, desenvolvendo Seu ministério em nosso favor. Uma compreensão correta disso envolve entender as três etapas do ministério do Messias: encarnação, sofrimento e glorificação.
 
-### Sofrimentos de Cristo por Nós (Obediência Passiva)
+Na encarnação, o Messias se fez homem, obedecendo ativamente à vontade de Deus. No sofrimento, Ele passou pelas experiências humanas, incluindo pressões familiares, religiosas e até mesmo com Seus próprios discípulos. O ápice desse sofrimento foi a Sua crucificação e morte.
 
-Além de obedecer perfeitamente à lei, Cristo também tomou sobre si os sofrimentos necessários para pagar a penalidade pelos nossos pecados.
+### Sofrimentos de Cristo por Nós
 
-#### Sofrimento por Toda a Vida
+A terceira etapa do ministério do Messias é a glorificação. Após Sua ressurreição, Cristo ascendeu aos céus, e a promessa é que Ele voltará para a última etapa de Seu ministério, quando será plenamente glorificado com a implantação de Seu reino.
 
-O ministério de Cristo foi caracterizado por dificuldades e sofrimentos, incluindo preconceito, oposição religiosa, e dor física.
+Cristo tinha que viver uma vida de perfeita obediência a Deus para obter a justiça por nós. Ele precisava obedecer à lei ao longo de toda a Sua vida, de modo que os méritos de Sua perfeita obediência fossem contados em nosso favor. Filipenses 3:9, 1 Coríntios 1:30, Romanos 5:19 e Mateus 3:15 são textos que fundamentam essa afirmação.
 
-#### Dor da Cruz
+Nossa convicção e certeza da salvação não se baseiam em nossos méritos ou obras, mas nos méritos de Cristo. Nossa salvação é pela graça, e não merecemos ser salvos. Cristo, no entanto, garantiu tudo o que era necessário para que, ao depositarmos nossa fé nEle, possamos ser salvos. Essa fé e decisão também são consequências da obra de Cristo sobre nós.
 
-Cristo experimentou a dor física, emocional, e espiritual da cruz, incluindo o abandono e a ira de Deus, para pagar o preço pelos nossos pecados.
+### O Sofrimento de Cristo
 
-#### Morte Real
+Cristo não apenas fez o que deveríamos ter feito, mas também suportou o que deveríamos ter suportado. Ele tomou sobre Si os sofrimentos necessários para pagar a penalidade pelos nossos pecados. Os sofrimentos são uma parte necessária da obra de Cristo, pois, para que haja comunhão entre um Deus santo e pecadores, um sacrifício deve ser oferecido, e todo sacrifício envolve sofrimento.
 
-A natureza humana de Cristo permitiu que Ele passasse por uma morte real, carregando o peso da ira de Deus e sofrendo a penalidade pelos nossos pecados.
+Cristo, em Seu amor e obediência, se colocou numa posição de extrema humilhação, sofrendo por nós. Como nosso bom pastor, Ele deu Sua vida por Suas ovelhas. Essa obediência e sofrimento foram reais e devem nos levar a uma vida cristã mais madura e consistente. Nenhum sofrimento que enfrentamos pode ser comparado ao que Ele suportou por nós.
 
-#### Ressurreição e Ascensão
-
-Após a sua morte, Cristo ressuscitou e ascendeu aos céus, onde está à direita do Pai, intercedendo por nós.
+Cristo, sem nunca ter cometido pecado, sofreu as consequências dos nossos atos pecaminosos. Ele carregou o peso da ira de Deus, enfrentando o abandono e a dor de suportar essa ira. Houve um momento específico em que, por carregar os nossos pecados, houve uma quebra de comunhão entre o Pai e o Filho. Cristo experimentou o abandono e a dor, mas após Sua morte, a comunhão foi restaurada, e agora Ele está à direita do Pai, intercedendo por nós.
 
 ## Conclusão
 
-A expiação realizada por Cristo foi perfeita e completa. Ele obedeceu ativamente à lei, viveu uma vida perfeita, e sofreu passivamente a dor e a morte em nosso lugar. Agora, Ele está à direita do Pai, intercedendo por nós.
+Nesta aula, refletimos sobre as consequências da expiação, incluindo a obediência ativa e passiva de Cristo. Ele obedeceu à lei de forma perfeita e suportou os sofrimentos necessários para pagar a penalidade pelos nossos pecados. Na próxima aula, continuaremos nossa reflexão sobre os efeitos da obra de Cristo.
 
-Na próxima aula, continuaremos a explorar as consequências da obra de Cristo e como elas se aplicam à nossa vida cristã.
-
-Grande abraço e até lá!
+Grande abraço e até o nosso próximo encontro! Deus abençoe!
