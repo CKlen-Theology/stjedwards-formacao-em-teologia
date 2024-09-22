@@ -1,4 +1,4 @@
-## CRISTOLOGIA: transcrição editada da aula 0
+## CRISTOLOGIA: transcrição editada da aula 05
 
 Olá, sejam bem-vindos à nossa aula de Cristologia Reformada. Nas aulas anteriores, começamos a refletir sobre a necessidade de compreendermos Jesus como plenamente humano e plenamente divino. Também introduzimos a ideia de que, ao longo da história da igreja, surgiram conceitos equivocados que tentavam explicar a natureza de Cristo de uma perspectiva racional ou para adequá-lo a sistemas que não concordavam plenamente nem com sua humanidade nem com sua divindade. 
 
