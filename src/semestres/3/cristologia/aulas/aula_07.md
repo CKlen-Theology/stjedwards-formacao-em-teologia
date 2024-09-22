@@ -1,68 +1,37 @@
-## CRISTOLOGIA: transcrição editada da aula 07
+## CRISTOLOGIA: transcrição editada da aula 07: A OBRA PERFEITA DE CRISTO (parte 2)
 
-Olá, sejam bem-vindos à nossa sétima aula do nosso curso de Teologia Sistemática, Disciplina Cristologia. Hoje, daremos continuidade à nossa reflexão sobre os aspectos da obra realizada por Cristo, considerando tanto a sua humanidade quanto a sua divindade. É necessário abordarmos a questão da humanidade e da divindade para compreendermos a perfeição da obra de Cristo, tanto em sua natureza divina quanto em sua natureza humana.
+Olá, sejam bem-vindos à nossa sétima aula do curso de Teologia Sistemática, disciplina Cristologia. Hoje, daremos continuidade à nossa reflexão sobre os aspectos da obra realizada por Cristo, aspectos esses que devem ser observados a partir da sua humanidade e divindade, da sua plena humanidade e plena divindade. Como coloquei em encontros anteriores, é necessário abordarmos a questão da humanidade e da divindade para compreendermos aspectos da obra de Cristo, tanto a perfeição do que foi realizado por Cristo homem, como a perfeição daquilo que foi realizado por Cristo Deus.
 
-Como sempre, quero enfatizar que as informações apresentadas nessas aulas são introdutórias. Meu objetivo é que vocês se dediquem às leituras obrigatórias e complementares, para que possamos, juntos, cumprir com excelência esta etapa do nosso curso de Teologia Sistemática.
+Repetindo a metodologia, apresento as informações com caráter introdutório, acreditando que vocês farão as leituras obrigatórias e complementares, para que, juntos, possamos cumprir com excelência mais essa etapa em nosso curso de Teologia Sistemática.
 
-## Por que Podemos Classificar a Obra de Cristo como Perfeita?
+Na aula passada, paramos com a informação de que, por Cristo ser plenamente Deus e plenamente homem, não há quebra de mandamento ou pecado de idolatria quando o adoramos. Essa é uma consequência importante do entendimento correto desses apontamentos doutrinários.
 
-### Natureza Divina para Natureza Humana
+Outro aspecto é que, embora a natureza humana de Jesus não tenha mudado em seu caráter essencial, uma vez que foi unida à natureza divina na única pessoa de Cristo, a natureza humana de Jesus obteve a incapacidade de pecar. Comungamos dessa afirmação no seguinte aspecto: Deus não pode pecar. A Bíblia afirma que Deus é santo, perfeito, justo, e não pode ter comunhão com o pecado. Como as duas naturezas estão unidas em uma só pessoa, a natureza divina concede à natureza humana a incapacidade de pecar.
 
-- Capacidade de Experimentar Sofrimento e Morte: Como podemos explicar que Deus tenha morrido? A natureza humana de Cristo permitiu que Ele experimentasse o sofrimento e a morte, o que foi possível devido à união das duas naturezas em uma única pessoa.
+As tentações de Cristo foram reais, para que ele pudesse ser nosso intermediador, nosso substituto, cumprindo o que os autores bíblicos falam acerca dele, de que ele experimentou o que experimentamos, assumindo, de fato, a nossa humanidade. As tentações foram reais, mas Cristo, como é sabido, resistiu a elas, cumprindo cabalmente com a lei do Senhor, obtendo a obediência perfeita em nosso lugar.
 
-### Natureza Humana de Jesus
+## Por que podemos classificar a obra de Cristo como perfeita?
 
-- Digna de Adoração: Jesus, sendo plenamente Deus e plenamente homem, pode ser adorado sem que cometamos idolatria.
-- Incapacidade de Pecar: Embora a natureza humana de Jesus não tenha mudado em seu caráter essencial, ao ser unida à natureza divina, adquiriu a incapacidade de pecar.
+A natureza humana de Jesus lhe deu a capacidade de ser nosso sacrifício substitutivo. Todo o sistema sacrificial do Antigo Testamento apontava para o sacrifício maior que seria realizado pelo próprio Messias. Os autores do Antigo Testamento identificam o Messias como aquele que se ofereceria como sacrifício perfeito.
 
-## Consequências Teológicas
+Cristo, como nosso representante, é o sacrifício perfeito em favor de seu povo. Isso só foi possível por causa de sua plena humanidade. Um representante humano morrendo em favor de outros homens e mulheres. A natureza humana de Jesus lhe deu a capacidade de ser nosso sacrifício substitutivo, sobre quem foi imputada a ira de Deus, aplacando-a de nós.
 
-### Obra Perfeita:
+## A Expiação
 
-Cristo, sendo 100% humano e 100% divino, realizou uma obra perfeita em nosso favor.
+Expiação é a obra que Cristo realizou em sua vida e morte para obter nossa salvação. Existem outras definições, mas, para nosso objetivo, essa é suficiente. Introduzo o assunto para que possamos discutir suas consequências. Por exemplo, quando se fala sobre expiação, pensamos nos cinco pontos do calvinismo, que são um resumo do sistema teológico calvinista.
 
-### Natureza Divina para Adoração:
+Um desses pontos é a expiação limitada, que causa polêmica. Alguns não veem como um bom termo, pois a obra de Cristo não é limitada em sua conquista, mas no seu alvo. A pergunta é: Cristo morreu por todos os homens, ou apenas pelos eleitos? Aqueles que foram escolhidos por Deus antes da fundação do mundo.
 
-Só podemos cultuar Jesus porque Ele é Deus. Se não reconhecermos sua divindade, estaríamos cometendo idolatria.
+Dependendo do sistema teológico, essa pergunta se faz necessária. Precisamos entender o que é expiação para dialogarmos melhor com essa questão. Se Cristo morreu por todos, de forma indiscriminada, qual foi a diferença daquilo que ele fez na cruz? Será que a salvação depende também de uma decisão humana? Ou a obra de Cristo foi perfeita e eficaz, morrendo por um grupo específico, sobre o qual os benefícios dessa obra serão aplicados obrigatoriamente?
 
-### Incapacidade de Pecar:
-
-Embora a natureza humana de Jesus não tenha mudado em seu caráter essencial, ao ser unida à natureza divina, adquiriu a incapacidade de pecar.
-
-## Conclusão
-
-Estas afirmações estão de acordo com a Cristologia apresentada pelas Sagradas Escrituras.
-
-## Por que Podemos Classificar a Obra de Cristo como Perfeita?
-
-### Natureza Humana de Jesus
-
-- Capacidade de Ser Nosso Sacrifício Substitutivo: Jesus, como nosso representante humano, morreu em nosso lugar e pagou o preço da dívida que era nossa.
-
-O sistema sacrificial do Antigo Testamento apontava para um sacrifício maior, que seria realizado pelo Messias. Jesus, como verdadeiro homem, se ofereceu como sacrifício perfeito. Isaías 53 descreve claramente o ministério de Cristo, mostrando que Ele foi um homem de dores e que sofreu para nos trazer paz e cura.
-
-A natureza humana de Jesus permitiu que Ele fosse o nosso sacrifício substitutivo, morrendo em nosso lugar como nosso representante igual a nós.
-
-### Natureza Divina de Jesus
-
-- Capacidade de Experimentar Sofrimento e Morte: A natureza humana de Jesus permitiu que Ele experimentasse o sofrimento e a morte, o que foi possível devido à união das duas naturezas em uma única pessoa.
+Cristo morreu por uma comunidade específica, classificada como povo de Deus ou igreja. Ele realiza a obra da expiação com um objetivo específico. Há uma grande discussão sobre isso, sem unanimidade entre os teólogos. Alguns preferem o termo "expiação eficaz", pois a expiação de Cristo foi eficaz, morrendo por um grupo específico, e sobre este grupo, certamente, os benefícios dessa obra serão aplicados. Essa certeza vem da determinação do conselho divino, onde Deus Pai planeja a salvação, Deus Filho executa, e Deus Espírito Santo aplica.
 
 ## Aspectos Teológicos da Expiação
 
-### Causa: Amor e Justiça de Deus
+**Causa**: Amor e justiça de Deus (João 3:16; Romanos 3:25). Jesus expiou nosso pecado por amor a nós e para satisfazer a justiça de Deus, que não poderia ter comunhão conosco sem que a justiça fosse satisfeita.
 
-João 3:16 e Romanos 3:25. Jesus expiou os nossos pecados por amor e para satisfazer a justiça de Deus. A expiação aplacou a ira de Deus e nos trouxe justificação.
+**Necessidade**: A expiação não era absolutamente necessária em si mesma, mas, como consequência da decisão divina de salvar alguns, a expiação era absolutamente necessária (2 Pedro 2:4; Mateus 26:39; Lucas 24:25-26; Romanos 3:26; Hebreus 2:17). Alinhado com a revelação de Deus, para que haja comunhão entre Deus e pecadores, é necessário um sacrifício.
 
-### Necessidade:
+**Natureza**: Jesus obedeceu ao Pai em nosso lugar e cumpriu perfeitamente as exigências da lei. Ele obedeceu ativamente, vivendo uma vida de perfeita obediência a Deus, para que os méritos de sua obediência fossem contados a nosso favor. Além disso, Jesus sofreu passivamente, tomando sobre si os sofrimentos necessários para pagar a penalidade pelos nossos pecados.
 
-A expiação não era absolutamente necessária, mas, como consequência da decisão divina de salvar alguns, ela se tornou absolutamente necessária. 2 Pedro 2:4, Mateus 26:39, Lucas 24:25-26, Romanos 3:26, e Hebreus 2:17.
-
-### Natureza da Expiação:
-
-Jesus obedeceu ao Pai em nosso lugar e cumpriu perfeitamente as exigências da lei.
-
-## Conclusão
-
-Na próxima aula, continuaremos a explorar os aspectos teológicos da expiação, aprofundando nossa compreensão desta doutrina fundamental da fé cristã.
-
-Um grande abraço e até lá!
+Na próxima aula, continuaremos nossa reflexão sobre esses aspectos teológicos da expiação. Um grande abraço até lá!
