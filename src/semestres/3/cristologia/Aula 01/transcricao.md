@@ -1,0 +1,179 @@
+# Cristologia - Aula 01
+
+## Introdução
+
+Olá, sejam bem-vindos a mais um semestre do nosso curso de Teologia Sistemática. Neste semestre, teremos o privilégio, a honra e o prazer de estudarmos a disciplina **Cristologia**. Como tenho feito nas outras disciplinas, nesta aula introdutória, farei uma apresentação dos temas que estudaremos ao longo do semestre. Mais uma vez, convido vocês a se dedicarem da melhor maneira possível aos estudos dos temas propostos por esta disciplina.
+
+Todas as cadeiras que compõem o escopo da Teologia Sistemática são importantes, pois uma complementa a outra, uma é o desenvolvimento da outra. Contudo, existem aquelas pelas quais nutrimos um carinho especial, uma atenção mais profunda, que tocam nossos corações. Confesso a vocês que a disciplina Cristologia é muito especial para mim, por uma série de razões. A mais óbvia delas é que estudaremos acerca do nosso **Senhor e Salvador Jesus Cristo**.
+
+Isso é maravilhoso! Nosso coração se alegra e somos gratos a Deus por termos sido alcançados por Sua graça e, ao mesmo tempo, pela ação competente do Espírito Santo em nós, que nos concede o privilégio de estudarmos a doutrina, as características da pessoa de Cristo, Sua obra, o que Ele conquistou para a Sua igreja; enfim, todas as características da Sua obra.
+
+Convido vocês a aproveitarem este semestre da melhor maneira possível, persistindo em seus estudos, sem desanimar, pois este é um ponto muito importante. Lembrem-se sempre de que a competência deste curso e o alcance das minhas aulas dependem muito do envolvimento de vocês: da leitura dos textos indicados na ementa, do acompanhamento passo a passo de cada aula, buscando sempre o melhor aprendizado possível.
+
+A partir deste momento, apresentarei o que estudaremos durante o semestre. A apresentação reflete basicamente o que vocês encontrarão na ementa da disciplina. No entanto, hoje, para despertar o interesse de vocês, para que se sintam motivados a dizer: "Esta disciplina é realmente muito importante!", quero fazer esta apresentação especial.
+
+## A Pessoa de Cristo
+
+### Doutrina da Pessoa de Cristo
+
+Então, vamos ao material que usaremos para apresentar nossa disciplina. Como está apresentado, **Cristologia: a doutrina de Cristo**. Estudaremos sobre o nosso Senhor. Iniciaremos falando sobre a doutrina da pessoa de Cristo: as naturezas divina e humana do nosso **Redentor**.
+
+É crucial termos uma base doutrinária sólida em relação a esses temas. Por que é tão importante termos informações bíblicas sólidas acerca da **natureza humana e divina de Cristo**? Veremos que essas doutrinas são consideradas **fundamentais**. Ou seja, a igreja não admite nenhuma distorção dessas afirmações. Tanto que, ao longo da história, a igreja se posicionou em relação a elas; alguns concílios tiveram como tema e objetivo defendê-las.
+
+Estamos falando da afirmação de que **Cristo foi 100% homem e 100% divino**. É claro que temos dificuldades em compreender e encaixar isso em nossa racionalidade. Mas, como tenho dito nas outras disciplinas, fazemos teologia a partir da **revelação bíblica**. Portanto, mesmo que alguma doutrina não possa ser compreendida pela razão, somos convencidos pela revelação das Escrituras.
+
+As Escrituras nos revelam, e nós nos submetemos a esta revelação, que **Jesus Cristo foi, é e sempre será Deus**. Não houve nenhum momento em que Jesus Cristo tenha deixado de ser Deus. Cristo foi Deus, falando na cronologia humana; Jesus é Deus; e Jesus sempre será Deus.
+
+Afirmamos também que Jesus, dentro do Seu ministério, dentro do propósito do plano de salvação para o homem, **assumiu a forma humana e foi plenamente humano**. Ele não teve uma aparência humana, não foi um "quase humano". Ele foi 100% humano. Veremos o desenvolvimento dessas duas afirmações e o porquê de serem tão importantes, de serem doutrinas fundamentais para a igreja.
+
+###  Importância da Natureza Humana e Divina de Cristo
+
+Por que é necessário que **Jesus Cristo seja Deus**? Por que não podemos abrir mão da Sua divindade? E por que também é necessário que **Jesus Cristo tenha sido homem**? Por que é necessário defender a doutrina da humanidade de Cristo? Abordaremos essas duas afirmações durante as aulas.
+
+Prosseguindo com a apresentação, a pergunta é: **como Jesus pode ser plenamente Deus e plenamente homem e ainda assim ser uma pessoa?** Teremos contato com algumas respostas propostas para explicar essa questão, respostas que não foram aceitas pela igreja. Foram rejeitadas e classificadas como **heresias**. Daremos uma olhada nisso também, analisando o posicionamento de um dos concílios sobre as duas naturezas de Cristo.
+
+Segundo a revelação bíblica, é possível. Não só é possível, como é um fato! A partir da **Teologia Bíblica**, dos textos bíblicos – porque a nossa Teologia Sistemática é resultado, é produto da nossa Teologia Bíblica –, quando estudamos a pessoa de Cristo, o que a Bíblia nos fala sobre o Jesus homem?
+
+A Bíblia apresenta esse Jesus homem como detentor de uma **humanidade plena**. Jesus foi humano. 
+
+### Doutrina da Encarnação
+
+E aí, trataremos da doutrina da **encarnação**, que faz parte do ministério de Cristo, dividido em três processos:
+
+1. **Manifestação**, que classificamos como encarnação – "o verbo se fez carne e habitou entre nós" (Jo 1:14) –
+2. **Sofrimento** – o ministério de Cristo durante Sua existência aqui na Terra foi caracterizado pelo sofrimento em vários aspectos –
+3. **Glorificação ou exaltação**.
+
+Veremos alguns desses sofrimentos, a realidade e a necessidade deles. Os sofrimentos de Cristo foram **reais e necessários**. A Teologia Bíblica nos revela um Cristo humano. A partir das informações da nossa Teologia Bíblica, somos convencidos de que Ele é plenamente humano. Talvez este seja o lado mais fácil da nossa argumentação.
+
+Questionar que Jesus Cristo foi homem não tem sido o grande desafio contra a fé cristã. Até mesmo aqueles que não comungam da nossa fé admitem que um homem chamado Jesus, um judeu, tenha vivido em algum momento. Mas a Bíblia também apresenta textos sobre a **divindade de Jesus**: os autores bíblicos falando desse Jesus como plenamente divino.
+
+Analisaremos a opinião do próprio Cristo. O que Cristo pensava de Si mesmo? Será que Cristo se considerava Deus? Será que Cristo tinha plena consciência da Sua divindade? Veremos que sim, é possível: Jesus ser plenamente Deus, Jesus ser plenamente homem, e ainda assim ser uma só pessoa. Chegaremos a essa conclusão a partir das informações bíblicas.
+
+### Necessidade da Plena Humanidade
+
+Abordaremos também a **necessidade da plena humanidade**. Não se trata apenas de uma pesquisa, de uma curiosidade que devemos ter. Ela é necessária, não é uma pesquisa meramente especulativa. Tem um objetivo. Doutrinariamente, é importante, porque se Jesus não foi plenamente homem, isso trará consequências doutrinárias para algumas doutrinas centrais da fé cristã. É isso que desenvolveremos durante a nossa caminhada pela disciplina neste semestre.
+
+A necessidade da plena humanidade era real para que Cristo pudesse **cumprir os ofícios do Seu ministério**, para que Ele pudesse cumprir plenamente, inclusive, com as exigências da satisfação da justiça divina. Por isso que a igreja se posicionou em relação a esse tema também.
+
+### Necessidade da Plena Divindade
+
+Veremos a **necessidade da plena divindade**. Por que é importante que Jesus seja Deus? Porque, se assim não for, algumas doutrinas importantes também caem. É interessante nos dedicarmos a esse tipo de pesquisa, pois a nossa Cristologia influenciará a maneira como vemos muitas doutrinas.
+
+Talvez seja a disciplina que mais influencia também as nossas pregações. Somos pregadores que falam acerca de Cristo. Nossa visão acerca tanto da humanidade como da divindade de Jesus precisa estar bem clara. Precisamos ter posições firmes em relação a isso, e isso transparecerá em nosso discurso.
+
+Uma das coisas que tenho dito aos meus alunos é que um dos grandes males que a **teologia liberal** produz é justamente diminuir essa visão bíblica acerca de Cristo, reduzindo-O a apenas um homem que tinha um discurso diferente, um discurso em algum momento por eles classificado como importante, mas que não era Deus.
+
+Temos visto no mundo o resultado disso em algumas comunidades: os efeitos dessa afirmação. Quando se retira a divindade de Cristo das comunidades, elas morrem obrigatoriamente, porque as comunidades giram em torno dessa divindade. Estamos ali para adorá-Lo, nossos cultos são peças de adoração a Cristo. Se Ele não é Deus, estamos cometendo pecado, porque estamos adorando a criatura em vez do Criador. Não estamos oferecendo um culto verdadeiro, um culto que seja aceito. Vejam como é perigoso!
+
+Portanto, não é uma pesquisa especulativa; ela é necessária. Por isso, também analisaremos como os reformadores se posicionaram nas confissões de fé em relação a esses temas. Mas, voltemos à nossa apresentação.
+
+## Fases do Ministério de Cristo
+
+Falaremos sobre a **humilhação do Redentor**, que está dentro daquilo que mencionei sobre as três fases do ministério de Cristo:
+
+1. **Fase da humilhação**, também chamada por alguns de fase da encarnação, onde o Verbo se encarna, abre mão da Sua glória e assume a forma humana; 
+2. **Fase do sofrimento**, o momento do ministério de Cristo em que Ele se propõe a sofrer – e aqui não se fala só do sofrimento da cruz, mas do sofrimento de se colocar em submissão à vontade de Deus em todos os aspectos, durante o Seu ministério terreno –; 
+3. **Fase da glorificação ou da exaltação**.
+
+O ministério de Cristo é dividido nessas três fases: **encarnação e humilhação, sofrimento, e glorificação ou exaltação**. Durante a disciplina, veremos as características dessas etapas do ministério de Cristo: a humilhação do Redentor, as fases da encarnação – acabei repetindo as duas informações, mas vocês me perdoem –, os propósitos da encarnação e a importância da doutrina da encarnação.
+
+### Importância da Doutrina da Encarnação
+
+Por que a doutrina da encarnação é importante? Principalmente quando tratamos da obra da expiação, ela só faz sentido, tudo o que ela representa – e veremos isso também, as características da obra da expiação, a sua extensão, o que de fato foi conquistado – se de fato Cristo foi humano, se de fato o Verbo se encarnou.
+
+Sabemos que, no início da história da igreja, ela enfrentou dificuldades com isso. Mesmo dentro da igreja, havia aqueles que questionavam a encarnação. E a razão disso é que eram pessoas influenciadas pelo **gnosticismo**, que atribuía à matéria, à carne, a característica de ser má.
+
+Por consequência, Cristo não poderia ter se encarnado verdadeiramente, justamente por conta desse pressuposto filosófico do gnosticismo. Então, alguns começaram a defender que Cristo apenas tinha uma aparência humana. Esses pressupostos tiveram seus desdobramentos – veremos alguns também –, mas a igreja, prontamente, se posicionou.
+
+O **evangelista João** se posicionou tanto no seu Evangelho como em suas cartas, colocando como questão essencial que Cristo, de fato, se encarnou. Trabalharemos essas questões também.
+
+### Características do Sofrimento do Redentor
+
+As características do sofrimento do Redentor: veremos que foram **sofrimentos reais**. Cristo não morreu no campo das ideias, Cristo não sofreu no mundo das ideias. Os sofrimentos do nosso Redentor foram reais! Inclusive, trabalharemos as Suas tentações. É importante que isso seja bem definido. As tentações de Cristo foram reais.
+
+É claro que debateremos até que ponto seria possível Cristo cair, sendo Ele 100% homem e 100% Deus. Há uma discussão acerca disso, os teólogos reformados divergem em algumas características. Mas devemos chegar à conclusão bíblica: **as tentações de Jesus foram reais?** Sim! **Os sofrimentos de Cristo foram reais?** Por óbvio! E isto é necessário. Insisto na minha frase: não é apenas uma pesquisa especulativa, não é um tema sobre o qual você ou eu possamos ter uma opinião diferente.
+
+Os sofrimentos foram reais porque, se não foram sofrimentos reais, também criam-se dificuldades para a doutrina, para um dos princípios doutrinários de **Cristo como nosso sacerdote**. Hebreus deixará isso muito claro, que Ele pode ser, não, Ele **é o nosso Sumo Sacerdote porque Ele viveu, experimentou as nossas fragilidades, sentiu as nossas fraquezas**. Não faz sentido se esses sofrimentos não foram reais.
+
+Traremos também informações sobre isso para vocês. 
+
+### Propósitos do Sofrimento Redentor
+
+Os propósitos do sofrimento redentor: Cristo, de forma alguma, tinha prazer no sofrimento. Não era isso. Cristo não procurava o sofrimento apenas por sentir prazer nisso. Mas **foi necessário que Ele sofresse por propósitos**. Veremos quais foram esses propósitos, e isso também deverá gerar em nós piedade, gratidão, constrangimento ao dizermos: "Cristo passou por tudo isso por mim". Quais foram os propósitos? O que Ele conquistou? O que de fato foi conquistado com todo esse sofrimento?
+
+### Obediência Representativa
+
+Trabalharemos também a questão da **obediência representativa**. Cristo estava nos representando, e essa Sua obediência conquistou algo para nós. Veremos que a morte de Cristo não apenas possibilitou a salvação. Cristo não tornou a salvação possível; os autores bíblicos dirão que, de fato, Ele salvou. Ele realizou uma obra.
+
+Por ser **plenamente homem, Ele foi o nosso representante perfeito**. E por ser **plenamente Deus, cumpriu integralmente todas as exigências para que a ira de Deus fosse satisfeita**. Veremos também Cristo como nosso representante, representante do Seu povo, representante da Sua igreja, recebendo sobre Si toda a justiça, toda a ira de Deus necessária para que os nossos pecados fossem perdoados.
+
+### Justiça Plenamente Satisfeita
+
+Voltando à nossa apresentação, a **justiça plenamente satisfeita**: veremos que, em Cristo, Ele conquista plenamente essa satisfação da justiça de Deus. 
+
+## A Expiação
+
+### Questões Fundamentais da Expiação
+
+A expiação: 
+
+* **Era necessário que Cristo morresse?** Deus não poderia ter simplesmente nos perdoado? Por que foi necessário que Jesus passasse por tudo isso? Deus não poderia simplesmente nos perdoar e ter poupado o Seu Filho de passar por tudo isso? Isso era possível?
+
+* Outra pergunta: **a vida terrena de Jesus como um todo conquistou-nos algum benefício salvífico?** Os sistemas teológicos tratam essa questão de maneira diferente. Veremos qual deve ser o nosso melhor posicionamento. 
+
+* A causa e a natureza da expiação. 
+
+* Uma pergunta que também coloco: **por quem Cristo morreu? Por todos ou pelos eleitos?** Veremos essa discussão também, que é importante.
+
+## Ressurreição e Ascensão de Jesus
+
+E, por fim, trataremos da **ressurreição e ascensão de Jesus**. O que a Sua ressurreição e a Sua ascensão representam para o Seu povo? O que significa para nós o fato de Cristo ter ressuscitado?
+
+## Considerações Finais
+
+Esta foi uma breve introdução do que a disciplina se propõe a abordar. E são muitos temas! Espero que, durante as aulas, consigamos, mesmo que de forma introdutória, tratar de todos.
+
+## Bibliografia
+
+Agora, quero apresentar a vocês alguns livros. É claro que vocês terão à disposição, como nas disciplinas anteriores, uma bibliografia, uma bibliografia obrigatória, com os textos que esperamos que vocês leiam para terem um entendimento melhor da disciplina. Haverá também outros textos indicados na bibliografia.
+
+Mas, aqui, quero apresentar rapidamente alguns para vocês, para que, quando puderem adquiri-los, sirvam de apoio para um estudo mais aprofundado. Como em qualquer curso de teologia, ao cursá-lo, vocês se tornam aptos a estudar teologia. Com esta disciplina, não é diferente: vocês estarão aptos a se aprofundar.
+
+Apresentarei alguns textos que, creio eu, serão de grande auxílio para que vocês possam aprofundar suas pesquisas. Apresentarei esses textos a vocês rapidamente.
+
+### Recomendações de Leitura
+
+* **Van Groningen**: "Revelação Messiânica no Antigo Testamento"
+
+> Ele trata da revelação messiânica no Antigo Testamento, a origem divina do conceito messiânico e o seu desdobramento progressivo. Assim que puderem, comprem este livro. Não é um texto fundamental agora, no início da disciplina, mas, depois que vocês terminarem a disciplina, quando puderem comprá-lo, será um texto que aprofundará esses conceitos que trabalharemos durante o semestre.
+
+* **N. T. Wright**: “A Ressurreição do Filho de Deus”
+
+> Uma discussão acadêmica muito profunda acerca da ressurreição, e é muito bom ver alguém do tamanho do Wright defendendo isso de forma acadêmica. Este tema sofre muitos ataques. O tema da ressurreição, durante toda a história da igreja, sofre muitos ataques. Este é um texto extraordinário para que vocês possam ter contato com alguém que defende academicamente a ressurreição do nosso Senhor e Salvador Jesus Cristo.
+
+* **Larry Hurtado**: “O Senhor Jesus Cristo: Devoção a Jesus no Cristianismo Primitivo”
+
+> Um livro também da Editora Academia Cristã. Como se dava a adoração nas comunidades primitivas, os conceitos... É um texto extraordinário! Assim que puderem, comprem-no também.
+
+* **Wayne Grudem**: "Teologia Sistemática"
+
+> Gosto muito do Wayne Grudem. Utilizo muito o material do Grudem, vocês já perceberam isso. Justamente por conta da didática do Grudem, da forma como ele aborda os temas. Os sistemáticos – falando aqui com vocês –, os sistemáticos reformados, basicamente, trazem as mesmas informações. É claro que temos teologias sistemáticas com algumas diferenças, mas, entre os reformados, as diferenças estarão, basicamente, relacionadas ao sistema de governo, às formas de batismo, às posições escatológicas. Mas, no geral, os teólogos sistemáticos de linha reformada repetem as mesmas informações. Obviamente, com escritas diferentes, com metodologias distintas, com didáticas distintas. Mas o Grudem me agrada muito. Então, como tenho dito, se vocês tiverem a sistemática do Grudem, leiam, e vocês perceberão que a minha fala está em acordo com o Grudem. Não por não me identificar com os outros sistemáticos, mas por uma questão didática. Acredito que, neste exercício de dar aula a vocês, a proposta didática do Grudem é muito eficaz.
+
+* **Heber Carlos de Campos**: Coleção "Fé Evangélica"
+
+> Mas se você for pastor, professor, e me perguntar: "Qual livro eu deveria comprar para esta disciplina? Qual livro eu não posso deixar de comprar de forma alguma?", eu lhes direi que o livro a ser comprado é esta coleção "Fé Evangélica". Na verdade, são três livros do Heber Carlos de Campos, autor conhecido aqui no Brasil. Considero-o um dos maiores teólogos do Brasil, um homem que se propõe a tratar de temas complexos. Às vezes, ele tem a coragem até de ir um pouco além, abordando temas sobre os quais, geralmente, os sistemáticos não se posicionam, e Heber se mostra um teólogo muito corajoso. Ele tem esta coleção, uma coleção de três livros que tratam justamente dessas três fases do ministério de Cristo: da Sua encarnação, do Seu sofrimento e da Sua exaltação. 
+
+>> * O primeiro livro desta coleção é este: “A Humilhação do Redentor: Encarnação e Sofrimento”.
+>> * O segundo: “A Pessoa de Cristo: As Duas Naturezas do Redentor”. 
+>> * E o terceiro: “A União das Duas Naturezas do Redentor”. 
+
+> Então, se puderem comprar estes livros, será muito interessante e proveitoso para o desenvolvimento desta disciplina e para os seus estudos posteriores.
+
+* **Berkouwer**: “A Pessoa de Cristo”
+
+> Temos este livro clássico aqui também, muito indicado nos cursos de teologia: “A Pessoa de Cristo”, do Berkouwer. Se vocês se interessarem, se puderem comprá-lo, será proveitoso para as pesquisas de vocês.
+
+Finalizamos aqui nosso primeiro encontro. Espero ter despertado o interesse de vocês para a importância desta disciplina. Reafirmo a minha empolgação, a minha alegria com esta disciplina. Estudaremos acerca do nosso Senhor, estudaremos acerca dAquele que morreu por nós, estudaremos acerca dAquele com quem passaremos toda a eternidade.
+
+Acredito que estes sejam motivos mais do que suficientes para estarmos empolgados, para nos dedicarmos, durante todo este semestre, a esta disciplina tão importante: **Cristologia, a doutrina de Cristo**. Um grande abraço e até a nossa segunda aula!
